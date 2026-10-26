@@ -14,3 +14,18 @@ The same law 'People love returns' applies for friendship. We think kids are wea
 A wise rich will never make a unworthy poor his/her friend. But the same unworthy poor will definitely want to be the friend of that rich.
 
 This doesn't means you be a cynical like me. But it neither means that you trust everyone.
+
+
+3. **"No One cares about you if you don't offer a Return."**. Dale Carnegie in chapter 3 of his book "How to win Friends and Influence People in Society" says **People care about what they get, not what you get**. He demonstrates how he made 300% increase in hotel bill reduced to 50% for him by using showing the advantages and disadvantages of doing so. He first started with a **warm opening**, then **did not criticized the manager** and instead appreciated his work. Then he began explaining **The problem**, respectfully showed **advntage & disadvantages**. Since, Dale Carnegie had a good leverage i.e the crowd of people he attract whereever his seminars used to happen, the manager had to reduce the 300% increase to just 50%. 
+
+Trick in a nutshell:
+
+1. Start warmly and friendly and here give them a hint about the issue.
+2. Never criticize there work and instead praise there work as any other normal act done by a human.
+3. Humbly show what you want.
+4. Show them what they get infavour.
+5. Close the conversation/letter warmly.
+
+He humourosly starts the 3rd chaoter with:
+
+**"I often went fishing up in Maine during the summer. Personally I am very fond of strawberries and cream, but I have found that for some strange reason, fish prefer worms."**
