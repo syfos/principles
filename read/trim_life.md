@@ -48,4 +48,6 @@ Dale Carnegie, in chapter 1 and 2 explains about **critisim and appreciation**. 
 
 Conclusion: **One may not care about you, if you fail at returning what they want**
 
+In any **Open Mutual Converstaion** first tell what you are offering to them and then go for explaning things and after that demand what you want.
+
 
